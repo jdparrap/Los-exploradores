@@ -1,2 +1,2 @@
 # - POCHOLI.
-Habia una vez una iguana
+Mientras caia hacia el vacio Pocholi gritaba con todas sus fuerzas y era tanto el miedo que sentia que no fue capaz de abrir los ojos, despues de tres minutos y de casi quedarse sin voz se dio cuenta que aun no habia chocado con alguna superficie, en ese momento pocholi auqnue asustada, abrio los ojos y observo su alrededor, todo estaba oscuro era como un vacio absoluto entonces cambio su cara de temor a intriga, dejo de gritar y quedo pasmada de no saber que hacer o qué esperar, ironicamente adopto una postura sentada cruzazando sus piernas y poniendo sus manos sobre estas, como si de esperar algo se tratase. 
