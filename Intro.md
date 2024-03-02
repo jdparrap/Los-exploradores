@@ -4,6 +4,6 @@ Tres cronopios llamados *Malfi, Pocholi* y *Teo* y un fama llamado *Ratansky* se
 
 ¿Quieres saber que paso con *Malfi,Pocholi* y *Teo*? Selecciona el personaje del que quieras saber su historia:
 
-* [*Malfi*](Malfi.md)
-* [*Pocholi*](Pocholi.md)
-* [*Teo*](Teo.md)
+* [*malfin*![Alt text](<foto/WhatsApp Image 2024-03-01 at 11.56.08 PM.jpeg>)](Malfi.md)
+*  [*Pocholi*![Alt text](<foto/WhatsApp Image 2024-03-01 at 11.55.30 PM.jpeg>)](Pocholi.md)
+* [*Teo*![Alt text](<foto/WhatsApp Image 2024-03-01 at 11.56.44 PM.jpeg>)](Teo.md)
