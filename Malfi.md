@@ -25,7 +25,8 @@ Es allí cuando Malfi pide que sea llevado al manantial, pues solo si es llevado
 
 **__luego de horas de caminar, Malfi vé a lo lejos sus compañeros, y es alli cuando suelta a la hija del lider__**
 
-Una vez la hija del lider es libre, esta corre hacia su padre, y toda la pandilla de cabernicubios hullen
+Una vez la hija del lider es libre, esta corre hacia su padre, y toda la pandilla de cabernicubios huyen. Malfi corre hacia sus compañeros.
+
 
 ---
 #
