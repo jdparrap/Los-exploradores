@@ -17,3 +17,5 @@ Teo confundido le pregunto a que se referia con conocimento y habilidad si el so
 En ese momento Teo sugirio la idea de pasarlos uno por uno para que salieran y asi uno por uno fue saliendo y cuando todos salieron ayudaron a teo a salir, en ese momento el lider le dijo _"gran teo de corazon puro y grande como el cielo estamos en deuda"_ en ese momento todos lo cherrindios hicieron un circulo y empezaron a cantar *"UNGA-UNGA-BUM-BAM* *UNGA-UNGA-BUM-BAM"* *"MANTI-SARCU*" en ese preciso momento el jefe agarro de la mano a teo y le dijo te llevare a la recompenza que tu corazon anela 
 
 Tras un tiempo de caminar Teo vio dos figuras conocidas eran sus hermanos la tribo los llebo con ellos y justo donde estaban era el manantial de queso una de las cosas mas misticas y codiciadas en la aldea, pero teo antes de ir por el mantial prefiero abrazar a sus hermanos para juntos ir por el mantial 
+
+[*Final*](Final.md)
